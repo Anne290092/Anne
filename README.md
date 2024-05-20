@@ -8,4 +8,4 @@ And well, im organizing it here between spaces.
 
 --> amandatrenosto@gmail.com 
 
-![](https://tenor.com/pt-BR/view/big-wink-gif-14877296)
+![](https://tenor.com/pt-BR/view/okay-wink-mochi-peach-cat-gif-15594022)
